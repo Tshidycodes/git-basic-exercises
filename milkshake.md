@@ -1,5 +1,0 @@
-lemon cream, 
-
-Strawberry,
- 
-Chocolate
